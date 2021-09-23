@@ -1,1 +1,1 @@
-# Alti-Bitu_SJW
+# Altu-Bitu_SJW
